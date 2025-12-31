@@ -32,7 +32,7 @@
 
 ### 📫 Bana Ulaşın
 
-- **LinkedIn:** [linkedin.com/in/slymanmrcan](https://linkedin.com/in/slymanmrcan)
+- **LinkedIn:** [linkedin.com/in/slymnmrcn](https://linkedin.com/in/slymanmrcan)
 - **E-Posta:** slymanmrcan@gmail.com
 - **Konum:** Konya, Türkiye 🇹🇷
 
